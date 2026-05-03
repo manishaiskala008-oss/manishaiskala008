@@ -1,4 +1,4 @@
-# Hi, I'm Manisha Iskala 👋
+# Hi, I'm UdayaManisha Iskala 👋
 
 ### KPO Analyst → AI Ethics & Governance | Adtech Data Quality | Responsible AI
 
